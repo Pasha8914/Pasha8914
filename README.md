@@ -1,4 +1,4 @@
-### Hellow my friend :partying_face:
+### Hello my friend :partying_face:
 
 
 - 👋 I'm glad to meet new devs.
